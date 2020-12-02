@@ -1,4 +1,4 @@
-## Agil Julio - Content Creator and AR/VR Enthusiast
+## Agil Julio - Content Creator & AR/VR Enthusiast
 
 Hello! 👋 
 
