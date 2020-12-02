@@ -1,4 +1,4 @@
-### Agil Julio - Content Creator and AR/VR Enthusiast
+## Agil Julio - Content Creator and AR/VR Enthusiast
 
 Hello! 👋 I'm Agil Julio, a Content Creator & AR VR Enthusiast. Currently working as a Content Creator at Dicoding Indonsia. Creating an augmented reality games for social media like Instagram, managing blog content, and producing some videos on YouTube.
 
