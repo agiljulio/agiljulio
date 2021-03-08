@@ -7,5 +7,5 @@ I'm Agil Julio, a Content Creator. I like sharing about AR, VR, and another tech
 💬 Get in touch with me:
 - Site: [agiljulio.github.io](https://agiljulio.github.io/)
 - LinkedIn: [Agil Julio](https://www.linkedin.com/in/agiljulio/)
-- YouTube: [Agil Julio](https://www.youtube.com/user/azunoyami/)
+- YouTube: [Agil Julio](https://www.youtube.com/c/agiljulio)
 - Instagram: [@agiljulio](https://www.instagram.com/agiljulio/)
